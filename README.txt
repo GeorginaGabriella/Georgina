@@ -1,1 +1,1 @@
-btdhth
+aku adalah hujan
